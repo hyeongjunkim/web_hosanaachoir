@@ -42,7 +42,7 @@ table {
   border-collapse: collapse;
 }
 body {
-  font-family: 'Helvetica Neue', Helvetica, Arial, serif;
+  font-family: 'Nanum Gothic', 'Helvetica Neue', Helvetica, Arial, serif;
   font-size: 13px;
   line-height: 1.5;
   color: #000;
@@ -64,6 +64,7 @@ header h1 {
   line-height: 1.2;
   color: #303030;
   letter-spacing: -1px;
+  font-family: 'Nanum Gothic', Monaco, "Bitstream Vera Sans Mono", "Lucida Console", Terminal;
 }
 
 header h2 {
