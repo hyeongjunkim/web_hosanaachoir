@@ -8,179 +8,179 @@ layout: default
 [`LIVE`](http://hosanna.hjkim.me/assets/media/Hosanna_The_Last_Praise.m4a?raw=true)
 
 (2018. 12. 23.) 2018. 12월 넷째주일
-[빛나라 성가합창21] **보라 왕의 영광**
+**보라 왕의 영광**
 [`Youtube`](http://www.youtube.com/watch?v=ROMekYB-tuI)
 
 (2018. 12. 16.) 2018. 12월 셋째주일
-[빛나라 성가합창21] **새 아침 밝아온다**
+**새 아침 밝아온다**
 [`Youtube`](http://www.youtube.com/watch?v=OLpZNQGlXCk)
 
 (2018. 12. 09.) 2018. 12월 둘째주일
-[빛나라 성가합창21] **오라, 즐거이 노래하자**
+**오라, 즐거이 노래하자**
 [`Youtube`](http://www.youtube.com/watch?v=2QyV6ut-PvE)
 
 (2018. 12. 02.) 2018. 12월 첫째주일
-[빛나라 성가합창21] **그 앞에 경배하라**
+**그 앞에 경배하라**
 [`Youtube`](http://www.youtube.com/watch?v=kzfohrO8VAE)
 
 (2018. 11. 25.) 2018. 11월 넷째주일
-[빛나라 성가합창21] **모든 것 할 수 있네**
+**모든 것 할 수 있네**
 [`Youtube`](http://www.youtube.com/watch?v=MKMOo8l6j3U)
 
 (2018. 11. 18.) 2018. 11월 셋째주일
-[빛나라 성가합창21] **감사의 노래**
+**감사의 노래**
 [`Youtube`](http://www.youtube.com/watch?v=knfS4AtZHNk)
 
 (2018. 11. 11.) 2018. 11월 둘째주일
-[중앙성가 33] **끝없는 주님의 참사랑**
+**끝없는 주님의 참사랑**
 [`Youtube`](http://www.youtube.com/watch?v=JqkL-wZ0bns)
 
 (2018. 11. 04.) 2018. 11월 첫째주일
-[중앙성가 33] **주는 피난처**
+**주는 피난처**
 [`Youtube`](http://www.youtube.com/watch?v=tBf6-M8oomE)
 
 (2018. 10. 28.) 2018. 10월 넷째주일
-[중앙성가 33] **신실하심**
+**신실하심**
 [`Youtube`](http://www.youtube.com/watch?v=BOL6YxKMDc8)
 
 (2018. 10. 21.) 2018. 10월 셋째주일
-[중앙성가 33] **기 도**
+**기 도**
 [`Youtube`](http://www.youtube.com/watch?v=YXngwRjOxGo)
 
 (2018. 10. 14.) 2018. 10월 둘째주일
-[중앙성가 33] **내 노래 되신 주**
+**내 노래 되신 주**
 [`Youtube`](http://www.youtube.com/watch?v=dRk-sP4c2NI)
 
 (2018. 10. 07.) 2018. 10월 첫째주일
-[중앙성가 33] **주 은혜가 나에게 족하네**
+**주 은혜가 나에게 족하네**
 [`Youtube`](http://www.youtube.com/watch?v=NkUUIBtWv_M)
 
 (2018. 09. 30.) 2018. 09월 다섯째주
-[중앙성가 33] **기쁨의 노래 알렐루야**
+**기쁨의 노래 알렐루야**
 [`Youtube`](https://www.youtube.com/watch?v=FHTIxBQiv9M)
 
 (2018. 09. 23.) 2018. 09월 넷째주일
-[중앙성가 33] **Sing 찬양 온 세상 만드신 주**
+**Sing 찬양 온 세상 만드신 주**
 [`Youtube`](http://www.youtube.com/watch?v=X-3fX7bkamY)
 
 (2018. 09. 16.) 2018. 09월 셋째주일
-[중앙성가 35] **주의 손에 나의 손을 포개고**
+**주의 손에 나의 손을 포개고**
 [`Youtube`](https://www.youtube.com/watch?v=ALfMn5M6u7A)
 
 (2018. 09. 09.) 2018. 09월 둘째주일
-[중앙성가 35] **하나님의 사랑**
+**하나님의 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=STZXmyGiTmo)
 
 (2018. 09. 02.) 2018. 09월 첫째주일
-[중앙성가 35] **주를 앙모하는 자**
+**주를 앙모하는 자**
 [`Youtube`](http://www.youtube.com/watch?v=tZOzGhKtQeg)
 
 (2018. 08. 26.) 2018. 08월 넷째주일
-[중앙성가 35] **내 평생에 가는 길**
+**내 평생에 가는 길**
 [`Youtube`](http://www.youtube.com/watch?v=4Aeb_XQZeAo)
 
 (2018. 08. 19.) 2018. 08월 셋째주일
-[중앙성가 35] **주 예수 내 맘에 오심**
+**주 예수 내 맘에 오심**
 [`Youtube`](http://www.youtube.com/watch?v=xOrScmO-Olc)
 
 (2018. 08. 12.) 2018. 08월 둘째주일
-[중앙성가 35] **주의 뜻대로 살게 하소서**
+**주의 뜻대로 살게 하소서**
 [`Youtube`](http://www.youtube.com/watch?v=7tXKp0w_piU)
 
 (2018. 08. 05.) 2018. 08월 첫째주일
-[중앙성가 35] **주여 나의 손을 놓지 마소서**
+**주여 나의 손을 놓지 마소서**
 [`Youtube`](http://www.youtube.com/watch?v=O5PnyEUyCtE)
 
 (2018. 07. 29.) 2018. 07월 다섯째주
-[중앙성가 35] **전능의 하나님**
+**전능의 하나님**
 [`Youtube`](http://www.youtube.com/watch?v=4Zpj9ygRd4s)
 
 (2018. 07. 22.) 2018. 07월 넷째주일
-[중앙성가 35] **우리 함께 가리라**
+**우리 함께 가리라**
 [`Youtube`](http://www.youtube.com/watch?v=5L-nv97veLU)
 
 (2018. 07. 15.) 2018. 07월 셋째주일
-[중앙성가 35] **주님의 놀라운 사랑**
+**주님의 놀라운 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=p2tPiWbGNFc)
 
 (2018. 07. 08.) 2018. 07월 둘째주일
-[중앙성가 35] **여호와는 나의 빛이요**
+**여호와는 나의 빛이요**
 [`Youtube`](http://www.youtube.com/watch?v=KDkTWI9Ifb0)
 
 (2018. 07. 01.) 2018. 07월 첫째주일
-[중앙성가 35] **굳건히 서리라**
+**굳건히 서리라**
 [`Youtube`](http://www.youtube.com/watch?v=PPQ2XvhOSPM)
 
 (2018. 06. 24.) 2018. 06월 넷째주일
-[예수 나의 기쁨 17] **주와 같이 길가는 것**
+**주와 같이 길가는 것**
 [`Youtube`](http://www.youtube.com/watch?v=oss92mLOkSU)
 
 (2018. 06. 17.) 2018. 06월 셋째주일
-[예수 나의 기쁨 17] **내 영혼을 울리는 조용한 음성**
+**내 영혼을 울리는 조용한 음성**
 [`Youtube`](http://www.youtube.com/watch?v=s3MgaEpm8Bo)
 
 (2018. 06. 10.) 2018. 06월 둘째주일
-[예수 나의 기쁨 17] **오직 주님이**
+**오직 주님이**
 [`Youtube`](http://www.youtube.com/watch?v=3o33DOC6L34)
 
 (2018. 06. 03.) 2018. 06월 첫째주일
-[예수 나의 기쁨 17] **온 땅이여 주께 찬양**
+**온 땅이여 주께 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=yDac-pxM_ME)
 
 (2018. 05. 27.) 2018. 05월 넷째주일
-[예수 나의 기쁨 17] **내 맘에 한노래있어**
+**내 맘에 한노래있어**
 [`Youtube`](https://www.youtube.com/watch?v=_xbHzl5XRWI)
 
 (2018. 05. 20.) 2018. 05월 셋째주일
-[중앙성가 32] **온 땅이여 여호와께**
+**온 땅이여 여호와께**
 [`Youtube`](http://www.youtube.com/watch?v=biatGfynuaQ)
 
 (2018. 05. 13.) 2018. 05월 둘째주일
-[중앙성가 32] **알렐루야! 즐겁게 찬양**
+**알렐루야! 즐겁게 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=eJJDtb8NP-8)
 
 (2018. 05. 06.) 2018. 05월 첫째주일
-[중앙성가 32] **내 맘 속에 노래 있으니**
+**내 맘 속에 노래 있으니**
 [`Youtube`](http://www.youtube.com/watch?v=xZm6GGLSMM4)
 
 (2018. 04. 29.) 2018. 04월 다섯째주
-[중앙성가 32] **주님은 옳습니다**
+**주님은 옳습니다**
 [`Youtube`](http://www.youtube.com/watch?v=HbN_P04tjlo)
 
 (2018. 04. 22.) 2018. 04월 넷째주일
-[중앙성가 32] **예수로 나의 구주 삼고**
+**예수로 나의 구주 삼고**
 [`Youtube`](http://www.youtube.com/watch?v=DAlrdopOsBk&t=2s)
 
 (2018. 04. 15.) 2018. 04월 셋째주일
-[중앙성가 32] **내게 있는 모든 것을**
+**내게 있는 모든 것을**
 [`Youtube`](http://www.youtube.com/watch?v=z5eHXfe9lns)
 
 (2018. 04. 08.) 2018. 04월 둘째주일
-[중앙성가 32] **주 은혜 놀랍도다**
+**주 은혜 놀랍도다**
 [`Youtube`](http://www.youtube.com/watch?v=7nuPozi36nw)
 
 (2018. 04. 01.) 2018. 04월 첫째주일
-[중앙성가 33] **승전가**
+**승전가**
 [`Youtube`](http://www.youtube.com/watch?v=UGO-ibIP7u0)
 
 (2018. 03. 25.) 2018. 03월 넷째주일
-[중앙성가 31] **종려주일 찬송**
+**종려주일 찬송**
 [`Youtube`](http://www.youtube.com/watch?v=IE56WEoUzdk)
 
 (2018. 03. 18.) 2018. 03월 셋째주일
-[중앙성가 32] **십자가 그 사랑**
+**십자가 그 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=8Y9qtiPnf-4)
 
 (2018. 03. 11.) 2018. 03월 둘째주일
-[중앙성가 32] **사랑으로**
+**사랑으로**
 [`Youtube`](http://www.youtube.com/watch?v=z7gmzLVmzYI)
 
 (2018. 03. 04.) 2018. 03월 첫째주일
-[중앙성가 32] **그 크신 하나님의 사랑**
+**그 크신 하나님의 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=KEeE73KyL1Y)
 
 (2018. 02. 25.) 2018. 02월 넷째주일
-[중앙성가 31] **거룩하신 여호와 앞에**
+**거룩하신 여호와 앞에**
 [`Youtube`](http://www.youtube.com/watch?v=IOYasee_Li8)
 
 (2018. 02. 18.) 2018. 02월 셋째주일
@@ -188,103 +188,103 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=PbOpbLErvZQ)
 
 (2018. 02. 11.) 2018. 02월 둘째주일
-[중앙성가 31] **만유의 주 찬송하리**
+**만유의 주 찬송하리**
 [`Youtube`](http://www.youtube.com/watch?v=2E1IJEXTNvI)
 
 (2018. 02. 04.) 2018. 02월 첫째주일
-[중앙성가 31] **주님나라 이루게 하소서**
+**주님나라 이루게 하소서**
 [`Youtube`](http://www.youtube.com/watch?v=GkMpwCWWC00)
 
 (2018. 01. 28.) 2018. 01월 넷째주일
-[중앙성가 31] **빛의 사자들이여**
+**빛의 사자들이여**
 [`Youtube`](http://www.youtube.com/watch?v=bwKgVZ3lRig)
 
 (2018. 01. 21.) 2018. 01월 셋째주일
-[예수 나의 기쁨 13] **떠나리라**
+**떠나리라**
 [`Youtube`](http://www.youtube.com/watch?v=Sk6VnlldaZc?rel=0&autoplay=1&loop=0)
 
 (2018. 01. 14.) 2018. 01월 둘째주일
-[예수 나의 기쁨 13] **하나님나라 이 땅에**
+**하나님나라 이 땅에**
 [`Youtube`](http://www.youtube.com/watch?v=MURpFx7OO7w?rel=0&autoplay=1&loop=0)
 
 (2018. 01. 07.) 2018. 01월 첫째주일
-[예수 나의 기쁨 13] **축복**
+**축복**
 [`Youtube`](http://www.youtube.com/watch?v=uCcd5UldxRs?rel=0&autoplay=1&loop=0)
 
 (2017. 12. 31.) 2017. 12월 다섯째주
-[예수 나의 기쁨 12] **지금까지 지내온 것**
+**지금까지 지내온 것**
 [`Youtube`](http://www.youtube.com/watch?v=SIppaQmbnDY?rel=0&autoplay=1&loop=0)
 
 (2017. 12. 24.) 2017. 12월 넷째주일
-[중앙성가 31] **온 성도여 기뻐하라**
+**온 성도여 기뻐하라**
 [`Youtube`](http://www.youtube.com/watch?v=XPHd62y98oA?rel=0&autoplay=1&loop=0)
 
 (2017. 12. 17.) 2017. 12월 셋째주일
-[중앙성가 31] **참 빛, 세상에 오셨네**
+**참 빛, 세상에 오셨네**
 [`Youtube`](http://www.youtube.com/watch?v=MnI-wlzaVao?rel=0&autoplay=1&loop=0)
 
 (2017. 12. 10.) 2017. 12월 둘째주일
-[중앙성가 31] **그분**
+**그분**
 [`Youtube`](https://www.youtube.com/watch?v=0WQ_4dxi1DM?rel=0&autoplay=1&loop=0)
 
 (2017. 12. 03.) 2017. 12월 첫째주일
-[예수 나의 기쁨 12] **누군가**
+**누군가**
 [`Youtube`](http://www.youtube.com/watch?v=cbF_jVuxpzs?rel=0&autoplay=1&loop=0)
 
 (2017. 11. 26.) 2017. 11월 넷째주일
-[예수 나의 기쁨 12] **아 하나님의 은혜로**
+**아 하나님의 은혜로**
 [`Youtube`](http://www.youtube.com/watch?v=ToVaR79mX3o?rel=0&autoplay=1&loop=0)
 
 (2017. 11. 19.) 2017. 11월 셋째주일
-[예수 나의 기쁨 12] **추수 찬송 합시다**
+**추수 찬송 합시다**
 [`Youtube`](http://www.youtube.com/watch?v=bIs2gRA9BYQ?rel=0&autoplay=1&loop=0)
 
 (2017. 11. 12.) 2017. 11월 둘째주일
-[중앙성가 30] **이 날에 감사하세**
+**이 날에 감사하세**
 [`Youtube`](http://www.youtube.com/watch?v=UyFR7InTnC8?rel=0&autoplay=1&loop=0)
 
 (2017. 11. 05.) 2017. 11월 첫째주일
-[중앙성가 30] **주께 찬양드림이 선하도다**
+**주께 찬양드림이 선하도다**
 [`Youtube`](http://www.youtube.com/watch?v=c1wktkGzrZw?rel=0&autoplay=1&loop=0)
 
 (2017. 10. 29.) 2017. 10월 다섯째주
-[중앙성가 30] **주께 찬양할 때에**
+**주께 찬양할 때에**
 [`Youtube`](http://www.youtube.com/watch?v=fWfdkNtJE_s?rel=0&autoplay=1&loop=0)
 
 (2017. 10. 22.) 2017. 10월 넷째주일
-[중앙성가 30] **강하고 담대하라**
+**강하고 담대하라**
 [`Youtube`](http://www.youtube.com/watch?v=IZLW1tiMfbU?rel=0&autoplay=1&loop=0)
 
 (2017. 10. 15.) 2017. 10월 셋째주일
-[중앙성가 31] **주 내게 오셔서**
+**주 내게 오셔서**
 [`Youtube`](http://www.youtube.com/watch?v=7phEnDu118o?rel=0&autoplay=1&loop=0)
 
 (2017. 10. 08.) 2017. 10월 둘째주일
-[중앙성가 31] **속죄하신 구세주를**
+**속죄하신 구세주를**
 [`Youtube`](http://www.youtube.com/watch?v=h_AX2k-R3nY?rel=0&autoplay=1&loop=0)
 
 (2017. 10. 01.) 2017. 10월 첫째주일
-[중앙성가 31] **이 영광의 날에 주 찬양**
+**이 영광의 날에 주 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=u-Z4sA7gqoA?rel=0&autoplay=1&loop=0)
 
 (2017. 09. 24.) 2017. 09월 넷째주일
-[중앙성가 31] **비추소서, 오 나의 주**
+**비추소서, 오 나의 주**
 [`Youtube`](http://www.youtube.com/watch?v=3AAUFjBSeKA?rel=0&autoplay=1&loop=0)
 
 (2017. 09. 17.) 2017. 09월 셋째주일
-[중앙성가 31] **이 세상에 근심된 일이 많고**
+**이 세상에 근심된 일이 많고**
 [`Youtube`](http://www.youtube.com/watch?v=gI4gA2yv9gI?rel=0&autoplay=1&loop=0)
 
 (2017. 09. 10.) 2017. 09월 둘째주일
-[중앙성가 31] **주님만이 나의 전부입니다**
+**주님만이 나의 전부입니다**
 [`Youtube`](http://www.youtube.com/watch?v=ng-lL6zYLgQ?rel=0&autoplay=1&loop=0)
 
 (2017. 09. 03.) 2017. 09월 첫째주일
-[중앙성가 31] **시편 100편**
+**시편 100편**
 [`Youtube`](http://www.youtube.com/watch?v=bvQ5jrMOrU8?rel=0&autoplay=1&loop=0)
 
 (2017. 08. 27.) 2017. 08월 넷째주일
-[예수 나의 기쁨 16] **오라 우리가**
+**오라 우리가**
 [`Youtube`](http://www.youtube.com/watch?v=LJYwoq4C4aY?rel=0&autoplay=1&loop=0)
 
 (2017. 08. 20.) 2017. 08월 셋째주일
@@ -292,115 +292,115 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=tiYaiVpkJgs?rel=0&autoplay=1&loop=0)
 
 (2017. 08. 13.) 2017. 08월 둘째주일
-[예수 나의 기쁨 16] **주 날개 밑에 거하리로다**
+**주 날개 밑에 거하리로다**
 [`Youtube`](http://www.youtube.com/watch?v=j3Z7YZ8r3os?rel=0&autoplay=1&loop=0)
 
 (2017. 08. 06.) 2017. 08월 첫째주일
-[예수 나의 기쁨 16] **나를 따라 오너라**
+**나를 따라 오너라**
 [`Youtube`](http://www.youtube.com/watch?v=A50PUf7dPS0?rel=0&autoplay=1&loop=0)
 
 (2017. 07. 30.) 2017. 07월 다섯째주
-[예수 나의 기쁨 16] **예수 나의 참 좋은 친구**
+**예수 나의 참 좋은 친구**
 [`Youtube`](http://www.youtube.com/watch?v=1R6fZR14j2c?rel=0&autoplay=1&loop=0)
 
 (2017. 07. 23.) 2017. 07월 넷째주일
-[예수 나의 기쁨 16] **주 너를 지키시리라**
+**주 너를 지키시리라**
 [`Youtube`](http://www.youtube.com/watch?v=tZo0D90N-wQ?rel=0&autoplay=1&loop=0)
 
 (2017. 07. 16.) 2017. 07월 셋째주일
-[예수 나의 기쁨 16] **주님 함께 길을가네**
+**주님 함께 길을가네**
 [`Youtube`](http://www.youtube.com/watch?v=qxHV1T2AWXA)
 
 (2017. 07. 09.) 2017. 07월 둘째주일
-[예수 나의 기쁨 16] **전하세**
+**전하세**
 [`Youtube`](http://www.youtube.com/watch?v=C23dDv10ggE?rel=0&autoplay=1&loop=0)
 
 (2017. 07. 02.) 2017. 07월 첫째주일
-[예수 나의 기쁨 16] **내 맘의 주여 소망되소서**
+**내 맘의 주여 소망되소서**
 [`Youtube`](http://www.youtube.com/watch?v=K-Z9TUW0tJQ?rel=0&autoplay=1&loop=0)
 
 (2017. 06. 25.) 2017. 06월 넷째주일
-[예수 나의 기쁨 16] **나팔 불고 소고 치며 찬양**
+**나팔 불고 소고 치며 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=Qmh0T8Z9BXA?rel=0&autoplay=1&loop=0)
 
 (2017. 06. 18.) 2017. 06월 셋째주일
-[예수 나의 기쁨 16] **은혜 위에 은혜**
+**은혜 위에 은혜**
 [`Youtube`](http://www.youtube.com/watch?v=z49juWWiWJw?rel=0&autoplay=1&loop=0)
 
 (2017. 06. 11.) 2017. 06월 둘째주일
-[예수 나의 기쁨 16] **오랫동안 모든 죄 가운데 빠져**
+**오랫동안 모든 죄 가운데 빠져**
 [`Youtube`](http://www.youtube.com/watch?v=NcQ1U0UETA0?rel=0&autoplay=1&loop=0)
 
 (2017. 06. 04.) 2017. 06월 첫째주일
-[예수 나의 기쁨 16] **성령시대**
+**성령시대**
 [`Youtube`](http://www.youtube.com/watch?v=W-JoFwyLuIE?rel=0&autoplay=1&loop=0)
 
 (2017. 05. 28.) 2017. 05월 넷째주일
-[예수 나의 기쁨 16] **좋으신 하나님**
+**좋으신 하나님**
 [`Youtube`](http://www.youtube.com/watch?v=Z7Y3891ZdyE?rel=0&autoplay=1&loop=0)
 
 (2017. 05. 21.) 2017. 05월 셋째주일
-[중앙성가 30] **주 안에 있는 나에게**
+**주 안에 있는 나에게**
 [`Youtube`](http://www.youtube.com/watch?v=gukHTYu4ZZQ?rel=0&autoplay=1&loop=0)
 
 (2017. 05. 14.) 2017. 05월 둘째주일
-[중앙성가 30] **임하소서**
+**임하소서**
 [`Youtube`](http://www.youtube.com/watch?v=iex5QAGxFc4?rel=0&autoplay=1&loop=0)
 
 (2017. 05. 07.) 2017. 05월 첫째주일
-[중앙성가 30] **이 가정 주인되신 예수께**
+**이 가정 주인되신 예수께**
 [`Youtube`](http://www.youtube.com/watch?v=PC3W7nG83_U?rel=0&autoplay=1&loop=0)
 
 (2017. 04. 30.) 2017. 04월 다섯째주
-[중앙성가 30] **왕 되신 주 하나님**
+**왕 되신 주 하나님**
 [`Youtube`](http://www.youtube.com/watch?v=wAa70WHRtyc?rel=0&autoplay=1&loop=0)
 
 (2017. 04. 23.) 2017. 04월 넷째주일
-[예수 나의 기쁨 16] **나같은 죄인 살리신**
+**나같은 죄인 살리신**
 [`Youtube`](http://www.youtube.com/watch?v=iwWOn0jQ5UI?rel=0&autoplay=1&loop=0)
 
 (2017. 04. 16.) 2017. 04월 셋째주일
-[중앙성가 30] **승리하신 주 찬양**
+**승리하신 주 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=Oxw1PGi_-yY?rel=0&autoplay=1&loop=0)
 
 (2017. 04. 09.) 2017. 04월 둘째주일
-[중앙성가 30] **거기 너 있었는가**
+**거기 너 있었는가**
 [`Youtube`](http://www.youtube.com/watch?v=aL2gDmtwM_w?rel=0&autoplay=1&loop=0)
 
 (2017. 04. 02.) 2017. 04월 첫째주일
-[중앙성가 30] **십자가 그늘 아래**
+**십자가 그늘 아래**
 [`Youtube`](http://www.youtube.com/watch?v=fFWaTvXl8Ak?rel=0&autoplay=1&loop=0)
 
 (2017. 03. 26.) 2017. 03월 넷째주일
-[중앙성가 30] **그 크신 하나님의 사랑**
+**그 크신 하나님의 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=Tx-IQONjr9Q?rel=0&autoplay=1&loop=0)
 
 (2017. 03. 19.) 2017. 03월 셋째주일
-[빛나라 성가합창 9] **갈보리의 사랑**
+**갈보리의 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=njwtd_JcAYc?rel=0&autoplay=1&loop=0)
 
 (2017. 03. 12.) 2017. 03월 둘째주일
-[빛나라 성가합창 9] **주님 약속하신 말씀 위에서**
+**주님 약속하신 말씀 위에서**
 [`Youtube`](http://www.youtube.com/watch?v=xUsKVI0QvT8?rel=0&autoplay=1&loop=0)
 
 (2017. 03. 05.) 2017. 03월 첫째주일
-[빛나라 성가합창 9] **시편 145편**
+**시편 145편**
 [`Youtube`](http://www.youtube.com/watch?v=LiqIwZ74MpI)
 
 (2017. 02. 26.) 2017. 02월 넷째주일
-[빛나라 성가합창 9] **주안에서 기뻐하라**
+**주안에서 기뻐하라**
 [`Youtube`](http://www.youtube.com/watch?v=vTPcLBa6h1Q)
 
 (2017. 02. 19.) 2017. 02월 셋째주일
-[예수 나의 기쁨 16] **능력의 주 찬양**
+**능력의 주 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=gHtW2PUDlpI)
 
 (2017. 02. 12.) 2017. 02월 둘째주일
-[예수 나의 기쁨 16] **주님께 영광 주 찬양!**
+**주님께 영광 주 찬양!**
 [`Youtube`](http://www.youtube.com/watch?v=ZMwTvIavkvY)
 
 (2017. 02. 05.) 2017. 02월 첫째주일
-[예수 나의 기쁨 16] **주는 나의 친구**
+**주는 나의 친구**
 [`Youtube`](http://www.youtube.com/watch?v=GKwfAhYTHFM?rel=0&autoplay=1&loop=0)
 
 (2017. 01. 29.) 2017. 01월 다섯째주
@@ -408,23 +408,23 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=d0dZ-vYEBIY)
 
 (2017. 01. 22.) 2017. 01월 넷째주일
-[중앙성가 30] **오직 성령이**
+**오직 성령이**
 [`Youtube`](http://www.youtube.com/watch?v=yw0t_RIcYE4)
 
 (2017. 01. 15.) 2017. 01월 셋째주일
-[중앙성가 30] **하나되어**
+**하나되어**
 [`Youtube`](http://www.youtube.com/watch?v=IyN_DZluzgs)
 
 (2017. 01. 08.) 2017. 01월 둘째주일
-[예수 나의 기쁨 16] **전하세**
+**전하세**
 [`Youtube`](http://www.youtube.com/watch?v=tnHhxz1BJsQ)
 
 (2017. 01. 01.) 2017. 01월 첫째주일
-[예수 나의 기쁨 16] **새 날을 주신 주 찬양**
+**새 날을 주신 주 찬양**
 [`Youtube`](http://www.youtube.com/watch?v=PSQKuRMcYGY)
 
 (2016. 12. 25.) 2016. 12월 넷째주일
-[중앙성가 25] **기쁘다 구주 오셨네**
+**기쁘다 구주 오셨네**
 [`Youtube`](http://www.youtube.com/watch?v=iCFE4QHRQpQ)
 
 (2016. 12. 18.) 2016. 12월 셋째주일
@@ -432,19 +432,19 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=8-QyyDOLOZc?rel=0&autoplay=1&loop=0)
 
 (2016. 12. 11.) 2016. 12월 둘째주일
-[예수 나의 기쁨 11] **외치라**
+**외치라**
 [`Youtube`](http://www.youtube.com/watch?v=-Kfy8A4_F9U)
 
 (2016. 12. 04.) 2016. 12월 첫째주일
-[예수 나의 기쁨 11] **그 사랑**
+**그 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=gDeGhHUMPnU)
 
 (2016. 11. 27.) 2016. 11월 넷째주일
-[예수 나의 기쁨 11] **찬양하게 하소서**
+**찬양하게 하소서**
 [`Youtube`](http://www.youtube.com/watch?v=YKS3_G1muUM)
 
 (2016. 11. 20.) 2016. 11월 셋째주일
-[중앙성가 25] **여호와께 감사하라**
+**여호와께 감사하라**
 [`Youtube`](http://www.youtube.com/watch?v=oUwFaYB2VKw)
 
 (2016. 11. 13.) 2016. 11월 둘째주일
@@ -452,43 +452,43 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=mmwhSbHOvgs)
 
 (2016. 11. 06.) 2016. 11월 첫째주일
-[중앙성가 25] **난 여호와로 즐거워하리**
+**난 여호와로 즐거워하리**
 [`Youtube`](http://www.youtube.com/watch?v=HxFpBgJqAp0)
 
 (2016. 10. 30.) 2016. 10월 다섯째주
-[중앙성가 25] **할렐루야 그의 성소에서**
+**할렐루야 그의 성소에서**
 [`Youtube`](http://www.youtube.com/watch?v=JWgaPCwq3Eo)
 
 (2016. 10. 23.) 2016. 10월 넷째주일
-[중앙성가 25] **은혜의 자리**
+**은혜의 자리**
 [`Youtube`](http://www.youtube.com/watch?v=Xns4hkgusj0)
 
 (2016. 10. 16.) 2016. 10월 셋째주일
-[예수 나의 기쁨 9] **주 안에 있는 나에게**
+**주 안에 있는 나에게**
 [`Youtube`](http://www.youtube.com/watch?v=vaMjZ9iDMQs)
 
 (2016. 10. 09.) 2016. 10월 둘째주일
-[예수 나의 기쁨 9] **오 신실하신 주**
+**오 신실하신 주**
 [`Youtube`](http://www.youtube.com/watch?v=E7cNzx9u7M4)
 
 (2016. 10. 02.) 2016. 10월 첫째주일
-[예수 나의 기쁨 9] **시편 8편**
+**시편 8편**
 [`Youtube`](http://www.youtube.com/watch?v=Ip0iZ-M4-Ug)
 
 (2016. 09. 25.) 2016. 09월 넷째주일
-[예수 나의 기쁨 11] **주여 나를**
+**주여 나를**
 [`Youtube`](http://www.youtube.com/watch?v=p00hR4nX7RY)
 
 (2016. 09. 18.) 2016. 09월 셋째주일
-[예수 나의 기쁨 11] **선한 목자**
+**선한 목자**
 [`Youtube`](http://www.youtube.com/watch?v=bH5-GiR_FRY)
 
 (2016. 09. 11.) 2016. 09월 둘째주일
-[예수 나의 기쁨 11] **여호와를 찬양하라**
+**여호와를 찬양하라**
 [`Youtube`](http://www.youtube.com/watch?v=AbBKvHhrh7A)
 
 (2016. 09. 04.) 2016. 09월 첫째주일
-[예수 나의 기쁨 11] **그는 거룩하시도다**
+**그는 거룩하시도다**
 [`Youtube`](http://www.youtube.com/watch?v=Q8ZlOOSNYck)
 
 (2016. 08. 28.) 2016. 08월 넷째주일
@@ -496,87 +496,87 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=jbSvTcz8APU)
 
 (2016. 08. 21.) 2016. 08월 셋째주일
-[예수 나의 기쁨 11] **믿음**
+**믿음**
 [`Youtube`](http://www.youtube.com/watch?v=Vy87HwyGMvg)
 
 (2016. 08. 14.) 2016. 08월 둘째주일
-[예수 나의 기쁨 9] **주와함께**
+**주와함께**
 [`Youtube`](http://www.youtube.com/watch?v=qqfBTHhzG9s)
 
 (2016. 08. 07.) 2016. 08월 첫째주일
-[예수 나의 기쁨 9] **두려워 말라**
+**두려워 말라**
 [`Youtube`](http://www.youtube.com/watch?v=dlsNDedkTjA)
 
 (2016. 07. 31.) 2016. 07월 다섯째주
-[예수 나의 기쁨 9] **구하면 주시리라**
+**구하면 주시리라**
 [`Youtube`](http://www.youtube.com/watch?v=S-wAmDA4GyY)
 
 (2016. 07. 24.) 2016. 07월 넷째주일
-[중앙성가 14집] **여호와는 나의 목자**
+**여호와는 나의 목자**
 [`Youtube`](http://www.youtube.com/watch?v=qDTX-FFNCto)
 
 (2016. 07. 17.) 2016. 07월 셋째주일
-[중앙성가 14집] **주 나의 이름 부를때**
+**주 나의 이름 부를때**
 [`Youtube`](http://www.youtube.com/watch?v=5UPrde3iKNc?rel=0&autoplay=1&loop=0)
 
 (2016. 07. 10.) 2016. 07월 둘째주일
-[중앙성가 14집] **빛과 소금되어**
+**빛과 소금되어**
 [`Youtube`](http://www.youtube.com/watch?v=oQD-IvBlsyA)
 
 (2016. 07. 03.) 2016. 07월 첫째주일
-[예수 나의 기쁨 15] **더하시리라**
+**더하시리라**
 [`Youtube`](http://www.youtube.com/watch?v=nslkF40Du08?rel=0&autoplay=1&loop=0)
 
 (2016. 06. 26.) 2016. 06월 넷째주일
-[예수 나의 기쁨 15] **나의 영혼이 잠잠히**
+**나의 영혼이 잠잠히**
 [`Youtube`](http://www.youtube.com/watch?v=qCX-Da90iSM)
 
 (2016. 06. 19.) 2016. 06월 셋째주일
-[예수 나의 기쁨 15] **만입이 나에게 있으면**
+**만입이 나에게 있으면**
 [`Youtube`](http://www.youtube.com/watch?v=WnRu8J8lY1A)
 
 (2016. 06. 12.) 2016. 06월 둘째주일
-[예수 나의 기쁨 15] **오직 주님밖에는**
+**오직 주님밖에는**
 [`Youtube`](http://www.youtube.com/watch?v=Lc2P4vjmWhs)
 
 (2016. 06. 05.) 2016. 06월 첫째주일
-[예수 나의 기쁨 15] **온 땅아**
+**온 땅아**
 [`Youtube`](http://www.youtube.com/watch?v=TRZdXjYICzQ)
 
 (2016. 05. 29.) 2016. 05월 다섯째주
-[예수 나의 기쁨 15] **주는 나를 기르시는 목자**
+**주는 나를 기르시는 목자**
 [`Youtube`](http://www.youtube.com/watch?v=kYz-BRsxfGE)
 
 (2016. 05. 22.) 2016. 05월 넷째주일
-[중앙성가 14] **내 영혼이 은총 입어**
+**내 영혼이 은총 입어**
 [`Youtube`](http://www.youtube.com/watch?v=TdQT5fXk1OU)
 
 (2016. 05. 15.) 2016. 05월 셋째주일
-[중앙성가 14] **성령님! 내게 임하소서!**
+**성령님! 내게 임하소서!**
 [`Youtube`](http://www.youtube.com/watch?v=5Ecsy17xcaM)
 
 (2016. 05. 08.) 2016. 05월 둘째주일
-[예수 나의 기쁨 15] **축복의 가정**
+**축복의 가정**
 [`Youtube`](http://www.youtube.com/watch?v=zefoRq3vomw)
 
 (2016. 05. 01.) 2016. 05월 첫째주일
-[중앙성가 29집] **어린 아이와 같이**
+**어린 아이와 같이**
 [`Youtube`](http://www.youtube.com/watch?v=k8s4ScY8fc4)
 
 (2016. 04. 24.) 2016. 04월 넷째주일
-[예수 나의 기쁨 12] **내 영혼의 그윽히 깊은 데서**
+**내 영혼의 그윽히 깊은 데서**
 [`Youtube`](http://www.youtube.com/watch?v=lWf9TBID71k)
 
 (2016. 04. 17.) 2016. 04월 셋째주일
-[예수 나의 기쁨 12] **주 예수 내 맘에 오심**
+**주 예수 내 맘에 오심**
 [`Youtube`](http://www.youtube.com/watch?v=LOcjPfJ4NSw)
 
 (2016. 04. 10.) 2016. 04월 둘째주일
-[예수 나의 기쁨 12] **만유의 주 영광의 왕**
+**만유의 주 영광의 왕**
 [`Youtube`](http://www.youtube.com/watch?v=Nt8bcZ7Yw3M)
 
 (2016. 04. 03.) 2016. 04월 첫째주일
-[중앙성가 29집] **내영혼아 주찬양하라**
+**내영혼아 주찬양하라**
 [`Youtube`](http://www.youtube.com/watch?v=tpH7_jBjJ1M)
 
 (2016. 03. 27.) 2016. 03월 넷째주일
@@ -588,71 +588,71 @@ layout: default
 [`Youtube`](http://www.youtube.com/watch?v=U7OzomMktXc)
 
 (2016. 03. 13.) 2016. 03월 둘째주일
-[예수 나의 기쁨 12] **십자가의 사랑**
+**십자가의 사랑**
 [`Youtube`](http://www.youtube.com/watch?v=ZNDDffSRagA)
 
 (2016. 03. 06.) 2016. 03월 첫째주일
-[중앙성가 29집] **그 십자가에서**
+**그 십자가에서**
 [`Youtube`](http://www.youtube.com/watch?v=AI7C2gjpXoU)
 
 (2016. 02. 28.) 2016. 02월 넷째주일
-[중앙성가 29집] **주님은 굳건한 반석**
+**주님은 굳건한 반석**
 [`Youtube`](http://www.youtube.com/watch?v=NzW1inOtyds)
 
 (2016. 02. 21.) 2016. 02월 셋째주일
-[중앙성가 29집] **주는 나의 힘**
+**주는 나의 힘**
 [`Youtube`](http://www.youtube.com/watch?v=RDtDl75xSow)
 
 (2016. 02. 14.) 2016. 02월 둘째주일
-[중앙성가 29집] **다시 복음 앞에**
+**다시 복음 앞에**
 [`Youtube`](http://www.youtube.com/watch?v=ojF4umRJdoA)
 
 (2016. 02. 07.) 2016. 02월 첫째주일
-[중앙성가 29집] **주는 나의 목자**
+**주는 나의 목자**
 [`Youtube`](http://www.youtube.com/watch?v=GjLNlM5vysE)
 
 (2016. 01. 31.) 2016. 01월 다섯째주
-[중앙성가 29집] **너를 떠나지 아니하리라**
+**너를 떠나지 아니하리라**
 [`Youtube`](http://www.youtube.com/watch?v=aGhQk7q5o_U)
 
 (2016. 01. 24.) 2016. 01월 넷째주일
-[중앙성가 29집] **믿음위에 굳게서라**
+**믿음위에 굳게서라**
 [`Youtube`](http://www.youtube.com/watch?v=wV_ZvG6bflQ)
 
 (2016. 01. 17.) 2016. 01월 셋째주일
-[중앙성가 29집] **다함께 천국갈때**
+**다함께 천국갈때**
 [`Youtube`](http://www.youtube.com/watch?v=CrDbkTMo9Ko)
 
 (2016. 01. 10.) 2016. 01월 둘째주일
-[예수 나의 기쁨 14] **하나님의 뜻을 행하라**
+**하나님의 뜻을 행하라**
 [`Youtube`](http://streaming.samilchurch.com/media2/2016-01/praise/2016-01-10_s2_p.mp4)
 
 (2016. 01. 03.) 2016. 01월 첫째주일
-[예수 나의 기쁨 14] **시온의 영광이 빛나는 아침**
+**시온의 영광이 빛나는 아침**
 [`Youtube`](http://streaming.samilchurch.com/media2/2016-01/praise/2016-01-03_s2_p.mp4)
 
 (2015. 12. 27.) 2015. 12월 넷째주일
-[예수 나의 기쁨 12] **지금까지 지내온 것 - 조성은**
+**지금까지 지내온 것 - 조성은**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-12/praise/2015-12-27_s3_p.mp4)
 
 (2015. 12. 20.) 2015. 12월 셋째주일
-[중앙성가 29] **일어나라! 빛을 비추라**
+**일어나라! 빛을 비추라**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-12/praise/2015-12-20_s3_p.mp4)
 
 (2015. 12. 13.) 2015. 12월 둘째주일
-[중앙성가 29] **말씀이 육신이되어**
+**말씀이 육신이되어**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-12/praise/2015-12-13_s3_p.mp4)
 
 (2015. 12. 06.) 2015. 12월 첫째주일
-[중앙성가 20] **그 사랑 크고도 놀랍네**
+**그 사랑 크고도 놀랍네**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-12/praise/2015-12-06_s3_p.mp4)
 
 (2015. 11. 29.) 2015. 11월 다섯째주
-[중앙성가 20] **거룩하신 왕**
+**거룩하신 왕**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-11/praise/2015-11-29_s4_p.mp4)
 
 (2015. 11. 22.) 2015. 11월 넷째주일
-[중앙성가 29] **영광의 주 이름 높이세**
+**영광의 주 이름 높이세**
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-11/praise/2015-11-22_s4_p.mp4)
 
 (2015. 11. 15.) 2015. 11월 셋째주일
@@ -660,15 +660,15 @@ layout: default
 [`Youtube`](http://streaming.samilchurch.com/media2/2015-11/praise/2015-11-15_s4_p.mp4)
 
 (2015. 11. 08.) 2015. 11월 둘째주일
-[중앙성가 20] **주님의 솜씨 찬양해**
+**주님의 솜씨 찬양해**
 [`Youtube`](http://streaming.samilchurch.com/2015-11/praise/2015-11-08_s4_p.mp4)
 
 (2015. 11. 01.) 2015. 11월 첫째주일
-[예수 나의 기쁨 13] **만유의 주재**
+**만유의 주재**
 [`Youtube`](http://streaming.samilchurch.com/2015-11/praise/2015-11-01_s4_p.mp4)
 
 (2015. 10. 25.) 2015. 10월 넷째주일
-[예수 나의 기쁨 13] **내가 깊은 곳에서**
+**내가 깊은 곳에서**
 [`Youtube`](http://streaming.samilchurch.com/2015-10/praise/2015-10-25_s5_p.mp4)
 
 (2015. 10. 18.) 2015. 10월 셋째주일
